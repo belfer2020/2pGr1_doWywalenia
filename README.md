@@ -1,0 +1,1 @@
+# 2pGr1_doWywalenia
